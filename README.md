@@ -1,0 +1,2 @@
+# Nato
+No cry
